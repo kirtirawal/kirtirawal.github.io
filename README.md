@@ -1,1 +1,0 @@
-# kirtirawal.github.io
